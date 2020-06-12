@@ -15,3 +15,6 @@ L'affaire ayant été relayé par la plus part des journaux local, Le conseil ju
 Après maintes semaines d'investiguation, la police pu enfin trouvé de nouveau témoin de la scène, ceux-ci en donnèrent une version complètement diffèrente de celle imaginé par la police. 
 
 En effet l'homme vu sur la scène du crime n'était la que par un pur fruit du hasard.
+
+
+Ils avaient mangé des cerises, de **grosses cerises noires et luisantes**, au jus couleur de vin sombre. Et, plus tard, tandis qu’elle lui lisait un passage de la Princesse, il remarqua que les cerises avaient taché ses lèvres. A l’instant même, son essence divine disparut. Elle était faite d’argile, après tout – comme lui, _comme tout le monde !_ Ses lèvres étaient d’une chair pareille à la sienne, puisque le jus des cerises les tachait aussi. Elle était femme – femme tout entière, comme toutes les femmes ! Cette révélation l’abasourdit. Il lui sembla que le soleil mourait au ciel.
